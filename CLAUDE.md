@@ -1,0 +1,1 @@
+C:/Projects/EDUCATION/AI engineer/01-landing/AGENTS.md
